@@ -5,4 +5,4 @@
 - 👯 I’m looking to collaborate on network scanning tools or Pentesting labs
 - 📫 How to reach me: adan.rodarte@uabc.edu.mx
 - 😄 Pronouns: He/Him
-- 📖 Currently reading: We Have Always Lived in the Castle 🏰 by Shirley Jackson
+- 📖 Currently reading: Like Water for Chocolate ☕︎ by Laura Esquivel
